@@ -5,4 +5,5 @@
 
 ### I am available for the business minded data science or data analysis engagement.
 
-LinkedIn : https://www.linkedin.com/in/ensieh-bahrami-mba-pmp-02271748/
+### LinkedIn: 
+https://www.linkedin.com/in/ensieh-bahrami-mba-pmp-02271748/
